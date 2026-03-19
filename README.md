@@ -68,8 +68,8 @@ Thanks to my teammate for his dedication and hard work ❤️
 ---
 
 ## 🔗 Connect With Me
-- LinkedIn: [Your LinkedIn Profile Link]  
-- GitHub: [Your GitHub Profile Link]  
+- LinkedIn: www.linkedin.com/in/anidropaul 
+- GitHub: (https://github.com/anidrobot) 
 
 ---
 
